@@ -2,6 +2,13 @@ Welldo Tandava Center 2020
  
 The Years Of Welldo
 11 9 2020 
+[https://cdn.amultios.net/image/Hyank%20Shri%20Welldo%20Wnophringgo.png| Hyank Shri Welldo Wnophringgo
+(Grandmaster Destroyer)]
+
+Welldoadesha
+
+[https://cdn.amultios.net/image/welldoadesha.png | Draw Her Here]
+
 
 #Halaman
 
