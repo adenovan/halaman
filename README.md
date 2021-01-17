@@ -9,7 +9,9 @@ Welldoadesha
 
 ![WelldoAdeSha](https://cdn.amultios.net/image/welldoadesha.png)
 
-01 Finish ![Tux Fired](https://twitter.com/shribrahmana/status/1350787623233589248?s=20)
+01 Finish 
+
+[Tux Fired](https://twitter.com/shribrahmana/status/1350787623233589248?s=20)
 
 its 000 and 001 on twitter 
 
