@@ -1,14 +1,17 @@
+![Welldo Tandava Center](https://cdn.amultios.net/image/Hyank%20Shri%20Welldo%20Wnophringgo.png) 
+
 Welldo Tandava Center 2020
  
 The Years Of Welldo
 11 9 2020 
-[https://cdn.amultios.net/image/Hyank%20Shri%20Welldo%20Wnophringgo.png| Hyank Shri Welldo Wnophringgo
-(Grandmaster Destroyer)]
 
 Welldoadesha
 
-[https://cdn.amultios.net/image/welldoadesha.png | Draw Her Here]
+![WelldoAdeSha](https://cdn.amultios.net/image/welldoadesha.png)
 
+01 Finish ![Tux Fired] : https://twitter.com/shribrahmana/status/1350787623233589248?s=20
+
+its 000 and 001 on twitter 
 
 #Halaman
 
