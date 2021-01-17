@@ -11,11 +11,11 @@ Welldoadesha
 
 01 Finish 
 
-[Tux Fired](https://twitter.com/shribrahmana/status/1350787623233589248?s=20)
+[Tux Fired] : (https://twitter.com/shribrahmana/status/1350787623233589248?s=20)
 
 its 000 and 001 on twitter 
 
-Reverse Your Body Buddy not Your Device and Draw As of Us Read your body
+Reverse Your Body Buddy not Your Device and Draw As of Us Read your self
 
 ade.amultios
 
